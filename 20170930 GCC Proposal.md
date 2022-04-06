@@ -1,4 +1,3 @@
-
 # Global Challenges Collaboration - Proposal for Global Governance
 in response to an RFP issued April 2017
 
